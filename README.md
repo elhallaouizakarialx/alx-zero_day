@@ -1,1 +1,1 @@
-My first readme
+Enjoy Your Life By Learning New Things
